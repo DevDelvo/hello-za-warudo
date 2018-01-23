@@ -1,3 +1,3 @@
 # hello-za-warudo
-TOKI O TOMARE! 
+STAR PLATINUM! ZA WARUDO!  
 "Look, no one ever said Jotaro Kujo was a nice guy. I beat the crap outta people, more than I have to. Some are even still in the hospital. I've had idiot teachers who like to talk big, so I taught them a lesson, and they never came back to class. If I go to a restaurant and the food is bad, I make it a policy to stiff 'em with the bill. But, even a bastard like me... can spot true evil when he sees it! True evil, are those who use the weak for their own gain, then crush them underfoot when they're through! Especially an innocent woman! And that is exactly what you've done, isn't it? And your Stand gets to hide from the victim, the law, and the consequences. That's why... I will judge you myself!
